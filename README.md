@@ -1,6 +1,6 @@
 # Community Classroom OP
 EDNEN
-rfrfr
-kmgkm
+rfrkm
+kmmk
 crrcrc
 
